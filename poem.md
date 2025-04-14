@@ -2,7 +2,7 @@
 
 The sun will rise and skies will glow,
 The rivers gleam and soft winds ___.
-[Your line here]
+The ice will melt as will the snow.
 
 The trees will sing, the hills will sigh,
 The morning breaks as birds take ___.
