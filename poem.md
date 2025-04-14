@@ -8,6 +8,8 @@ The trees will sing, the hills will sigh,
 The morning breaks as birds take fly.
 Their whispers dance and kiss the sky.
 
-[Your closing stanza here]
+The meadow will shine as flowers bloom,
+The house will too as I use the broom.
+I drink a soup that contains one mushroom.
 
 [Your Name]
